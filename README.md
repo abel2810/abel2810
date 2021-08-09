@@ -1,0 +1,3 @@
+- I’m @abel2810 🏔
+- I’m currently learning data analytics 🧮 and AI 🤖
+- How to reach me send me a DM on Twitter abel_2810 
